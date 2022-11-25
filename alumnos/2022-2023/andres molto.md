@@ -1,10 +1,11 @@
 # Nombre o nick
 
-Andrew el puto amo 
+Andrew el hijo del bobo e hijos de padres primos
 
 ## Dirección de correo
 
-IES Hermanos Amorós
+IES La Horteta
+IES Mc Donalds
 
 ### Aficciones
 
