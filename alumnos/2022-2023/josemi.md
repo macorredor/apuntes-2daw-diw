@@ -12,5 +12,6 @@ Año: 2022
 - Programación
 - La clase de Diseño de Interfaces Web con el mejor profesor DON MIGUEL ÁNGEL CORREDOR
 - Perder neuronas
-
+- Ver gas
+- Ver gotas
 - Tetas tetacas bufarracas
