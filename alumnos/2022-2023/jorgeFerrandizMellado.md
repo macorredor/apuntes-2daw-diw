@@ -1,0 +1,13 @@
+# Ferra
+
+Hay que regalarle a la hija de Miguel Ángel rotuladores
+
+## jorgeferrandizmellado@gmail.com
+
+IES Hermanos Amorós
+
+### Aficciones
+
+- Ver series
+- El mundial
+
