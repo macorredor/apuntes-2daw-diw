@@ -11,5 +11,4 @@ IES Hermanos Amorós
 - Bici
 - Montaña
 - Llorar
-- Comer pollo
 
