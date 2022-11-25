@@ -11,4 +11,5 @@ IES Hermanos Amorós
 - Deporte
 - Leer. Últimamente Space Opera.
 - Ver series o cine.
+- hatear a ernesto
 

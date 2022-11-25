@@ -11,3 +11,4 @@ IES Hermanos Amorós
 - E-sports
 - Musica
 - Deporte
+- Visitar la lloreria
