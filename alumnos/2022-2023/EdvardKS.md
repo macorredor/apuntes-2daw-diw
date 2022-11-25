@@ -10,3 +10,4 @@ I.E.S. Hermanos Amorós
 - Baloncesto
 - Ser amigo de Jorge 
 - afsdf
+- cambios
