@@ -2,7 +2,7 @@
 
 Insertar texto aquí
 
-## shyne2003@gmail.com
+## shyne2003elgay@gmail.com
 
 IES Hermanos amorós
 
@@ -12,4 +12,5 @@ IES Hermanos amorós
 - Leer
 - Escribir
 - Youtube
-
+- Chuparsela a si mismo
+- Ver yaoi con su madre

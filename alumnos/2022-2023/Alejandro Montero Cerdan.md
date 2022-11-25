@@ -4,11 +4,10 @@ Aulumno
 
 ## alejandro.montero.cerdan@gmail.com
 
-IESHermanos Amoros
+IES Hermanos Amoros
 
 ### Aficciones
 
 - Jugar Videojuegos
 - Programar
 - Iniciacion en desarrollo de videojuegos
-- Comer pollos y su femenino
