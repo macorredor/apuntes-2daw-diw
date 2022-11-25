@@ -9,3 +9,4 @@ I.E.S. Hermanos Amorós
 - Desarrollo personal en programación
 - Baloncesto
 - Ser amigo de Jorge
+- Ver nopor armenio
