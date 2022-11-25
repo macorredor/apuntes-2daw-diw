@@ -5,11 +5,12 @@ Andrew el hijo del bobo e hijos de padres primos
 ## Dirección de correo
 
 IES La Horteta
-IES Mc Donalds
+IES Mc Donalds 24/7
 
 ### Aficciones
 
 - Bici
 - Montaña
 - Llorar
+- Comer pollassss
 
