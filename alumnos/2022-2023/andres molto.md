@@ -12,5 +12,5 @@ IES Mc Donalds
 - Bici
 - Montaña
 - Llorar
-- Comer pollo
+- Comer pollassss
 
