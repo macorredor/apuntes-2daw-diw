@@ -10,5 +10,5 @@ IES Hermanos Amorós
 
 - Bici
 - Montaña
-- Lorar
+- Llorar
 
