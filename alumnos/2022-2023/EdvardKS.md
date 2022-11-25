@@ -8,4 +8,5 @@ I.E.S. Hermanos Amorós
 
 - Desarrollo personal en programación
 - Baloncesto
-- Ser amigo de Jorge
+- Ser amigo de Jorge 
+- afsdf
