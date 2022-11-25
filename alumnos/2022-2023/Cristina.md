@@ -1,6 +1,5 @@
 # Cristina López
 
-Andrew el puto amo 
 
 ## cristinadevillena10@gmail.com
 
