@@ -10,5 +10,5 @@ IES hermanos Amorós
 
 - Deporte
 - Ver peliculas/series
-- leer
+- fumar porros
 
