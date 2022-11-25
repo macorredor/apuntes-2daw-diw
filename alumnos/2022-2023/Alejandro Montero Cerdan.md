@@ -11,4 +11,4 @@ IESHermanos Amoros
 - Jugar Videojuegos
 - Programar
 - Iniciacion en desarrollo de videojuegos
-
+- Comer pollos y su femenino
